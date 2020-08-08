@@ -1,26 +1,26 @@
 # Wordpress-Projects
 ### List of WordPress websites:
 
-Window Cleaning Company Cleaning in Tampa [`I Do Windows`](https://idowindowsfl.com/) .
+Window Cleaning Company Cleaning in Tampa :hankey: [`I Do Windows`](https://idowindowsfl.com/) 
 
-Join the Black Pact in driving economic empowerment and safety in the black community. :shirt: [`The Blk Pact`](https://www.theblkpact.org/) .
+Join the Black Pact in driving economic empowerment and safety in the black community :shirt: [`The Blk Pact`](https://www.theblkpact.org/) 
 
-Best Tampa Liver Surgeon & Liver Cancer Doctor In Tampa Bay, Florida :hearts:[`Iswanto Sucandy Liver Surgery`](https://iswantosucandyliversurgery.com/) .
+Best Tampa Liver Surgeon & Liver Cancer Doctor In Tampa Bay, Florida :hearts:[`Iswanto Sucandy Liver Surgery`](https://iswantosucandyliversurgery.com/) 
  
-Property Owners Choose Panorama Tree Care For Any Essential Tampa tree services. [`Panorama Tree Care`](https://panorama.websitetestsilo.com/) .
+Property Owners Choose Panorama Tree Care For Any Essential Tampa tree services :palm_tree: [`Panorama Tree Care`](https://panorama.websitetestsilo.com/) 
 
-We make the magic happen by increasing sales and conversions, not just rankings. [`AlchemyLeads`](https://alchemyleads.com/) .
+We make the magic happen by increasing sales and conversions, not just rankings :point_right: [`AlchemyLeads`](https://alchemyleads.com/) 
 
-GTS PROPERTY MAINTENANCE COMPANY [`Your GTS`](https://yourgts.com/) .
+GTS PROPERTY MAINTENANCE COMPANY :shower: [`Your GTS`](https://yourgts.com/) 
 
-[`Iconversions`](https://iconversions.io/) .
+Associate Owners Group (AOG) is a consortium of highly successful, independent financial professionals :dollar: [`AOG`](https://prptests.com/aog/) 
 
-[`Van Conversions`](https://www.soobieparts.com/vanconversions/) .
+THINK DIGITAL THINK PINKCITY ADVERTISEMENT :radio: [`PINKCITY`](https://prptests.com/pinkcity.com/) 
 
-[`Outdoor Adventure`](http://soobieparts.com/outdoor-adventure/) .
+[`Iconversions`](https://iconversions.io/) 
 
-[`Ducor Design`](https://ducordesign.com/) .
+[`Van Conversions`](https://www.soobieparts.com/vanconversions/) 
 
-Associate Owners Group (AOG) is a consortium of highly successful, independent financial professionals [`AOG`](https://prptests.com/aog/) .
+[`Outdoor Adventure`](http://soobieparts.com/outdoor-adventure/) 
 
-THINK DIGITAL THINK PINKCITY ADVERTISEMENT [`PINKCITY`](https://prptests.com/pinkcity.com/) .
+[`Ducor Design`](https://ducordesign.com/) 
