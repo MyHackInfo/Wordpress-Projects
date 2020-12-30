@@ -13,7 +13,7 @@ We make the magic happen by increasing sales and conversions, not just rankings 
 
 GTS PROPERTY MAINTENANCE COMPANY :shower: [`Your GTS`](https://yourgts.com/) 
 
-Associate Owners Group (AOG) is a consortium of highly successful, independent financial professionals :dollar: [`AOG`](https://prptests.com/aog/) 
+Associate Owners Group (AOG) is a consortium of highly successful, independent financial professionals :dollar: [`AOG`](https://associateownersgroup.com/) 
 
 THINK DIGITAL THINK PINKCITY ADVERTISEMENT :radio: [`PINKCITY`](https://prptests.com/pinkcity.com/) 
 
